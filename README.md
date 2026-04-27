@@ -1,1 +1,0 @@
-# TUPLES-ACTIVITY-
